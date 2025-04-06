@@ -34,7 +34,8 @@ Sign up for early access and exclusive updates on the release of our collection.
 ## Contact
 
 For inquiries or collaborations, reach out to us at:
-- Email: info@giannimarchetti.it
-- Instagram: [@giannimarchetti.eyewear](https://instagram.com/giannimarchetti.eyewear)
+- Email: thegiannimarchettii@gmail.com 
+- Instagram: [@giannimarchettii](https://instagram.com/giannimarchettii
+- )
 
 © 2025 Gianni Marchetti · All rights reserved.
